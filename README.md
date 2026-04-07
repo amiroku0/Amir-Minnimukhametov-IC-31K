@@ -1,1 +1,1 @@
-# Amir-Minnimukhametov-IC-31K
+Амир Миннимухаметов ИС-31К
